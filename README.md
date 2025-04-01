@@ -1,1 +1,1 @@
-Siała baba mak
+Siała baba mak nie wiedziała jak
